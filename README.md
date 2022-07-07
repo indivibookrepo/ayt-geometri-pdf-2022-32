@@ -1,0 +1,1 @@
+# ayt-geometri-pdf-2022-32
